@@ -1,2 +1,0 @@
-# jhaddix.github.io
-yeaaaaaah
